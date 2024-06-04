@@ -25,9 +25,8 @@ Email válido para certificação SSL
 
 ## Consultoria e contato:
 
-    CANAL VEM FAZER LTDA
 
-    Fone: 81 99627-7285(WhatsApp)
+    Fone: (32) 998706611 (WhatsApp)
 
 
 ## Se o conteúdo te ajudou ajude este projeto:
